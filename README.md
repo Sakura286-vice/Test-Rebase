@@ -2,4 +2,6 @@
 
 ## balabala
 
+no void to cry
+
 ## lololo
